@@ -1,3 +1,3 @@
 # ★
 
-![arashi](https://mikejima.crd.co/assets/images/gallery14/3a609f50_original.png?v=16e7e82c)![kanata](https://mikejima.crd.co/assets/images/gallery14/ccf16f17_original.png?v=16e7e82c)![kagehira](https://mikejima.crd.co/assets/images/gallery14/f6a22549_original.png?v=16e7e82c)![hibiki](https://mikejima.crd.co/assets/images/gallery05/d99f96fa_original.png?v=16e7e82c)![hiyori](https://mikejima.crd.co/assets/images/gallery14/9a6ae008_original.png?v=16e7e82c)
+![fuck](https://media.discordapp.net/attachments/1122969335653220362/1136453409965355038/Untitled237_20230802191953.png?width=554&height=554)
